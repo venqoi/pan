@@ -1,6 +1,6 @@
 # Pan Flag
 
-Pansexual flab using github languages list
+Pansexual flan using github languages list
 
 ![image](https://files.catbox.moe/eq2mlw.png)
 
